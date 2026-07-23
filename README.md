@@ -1,6 +1,6 @@
 # Hi there 👋
 
-![Banner](PASTE_LINK_GAMBAR_ANDA_DI_SINI)
+![Banner](life update 😸.jpg)
 
 ### I am Muhammad Radith Nurmansyah
 
