@@ -1,6 +1,6 @@
 # Hi there 👋
 
-![Banner](life update 😸.jpg)
+![Banner](meeng.jpg)
 
 ### I am Muhammad Radith Nurmansyah
 
